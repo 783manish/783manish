@@ -7,7 +7,7 @@
 
 - 🔭 I’m currently working on **Exact**
 
-- 📫 How to reach me **783manish@gmail.com**
+- 📫 How to reach me **s783manish@gmail.com**
 
 - ⚡ Fun fact **I love outdoor activities**
 
